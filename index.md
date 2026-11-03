@@ -27,4 +27,10 @@ Multigenerational lines bred for steady temperament and more predictable coats. 
 
 Think about your energy level, your space and your grooming budget before you think about looks. Generation (F1, F1B, multigen) affects coat and shedding more than most buyers expect. Browse every breed at [doodlebreedexpert.com](https://doodlebreedexpert.com/category/doodle-breed/).
 
+## More doodle guides
+
+- [Goldendoodle generations, simply explained](goldendoodle-generations)
+- [Aussiedoodle colors and what they mean for health](aussiedoodle-colors)
+- [Bernedoodle size and lifespan](bernedoodle-size-and-lifespan)
+
 *Written by Dr. Muhammad Usman, DVM*
